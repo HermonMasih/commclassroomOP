@@ -4,3 +4,4 @@
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
 - Hermon Masih finds this community really awesome!!
+- Keep up the good work Kunal. Well curated, to the point content.
